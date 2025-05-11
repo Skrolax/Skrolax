@@ -1,1 +1,2 @@
-im a nub programmer, code go brrrrrr (i cant code shi)
+I AM THE STORM THAT IS APPROACHING
+PROVOKING BLACK CLOUDS IN ISOLATION
